@@ -16,6 +16,8 @@ Individual element's link:https://cc.vvvvvvaria.org/octomode/hhzyings/pdf/
 
 Group members: Zhiying Hong, Chenjing Wen, Qiheng Tang, Jiayue He, Xintian Yin
 
+
+
 PERSONSAL PROJECT:
 
 Video link: https://youtube.com/shorts/djnDtiXHLd8?feature=share
